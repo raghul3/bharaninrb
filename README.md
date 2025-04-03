@@ -37,7 +37,7 @@ Currently working at **Cybernaut Edu Tech** 🚀, I also freelance, helping bran
 ---
 
 ## 🌐 Find me around the web  
-- **Portfolio**: [bharani-portfolio.tech](https://bharani-portfolio.tech)  
+- **Portfolio**: [bharaninrb.tech](http://bharaninrb.tech)  
 - **Bento Profile**: [bento.me/bharaninrb](https://bento.me/bharaninrb)  
 - **Email**: bharaninrb2002@gmail.com  
 - **LinkedIn**: [Bharanidharan on LinkedIn](https://linkedin.com/in/YOUR-LINK)  
